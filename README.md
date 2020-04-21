@@ -1,6 +1,6 @@
 
 # 草草吧 最新地址发布 
-## 导 航 永 久 域 名HttpS://tom1136.com
+## 导 航 永 久 域 名HttpS://i1880.com
 ## ⭐️ 👉 地址一 ：HttpS://tom1176.com
 ## ⭐️ 👉 地址一 ：HttpS://tom1181.com
 ## ⭐️ 👉 备用导航 ：HttpS://tom1155.com
