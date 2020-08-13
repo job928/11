@@ -1,6 +1,6 @@
 
 # 新浮力 最新地址发布 
-## 导 航 永 久 域 名Https://ccb1120.com
+## 导 航 永 久 域 名Http://ccb1120.com
 ## ⭐️ 👉 地址一 ：Http://ccb1121.com
 ## ⭐️ 👉 地址一 ：Http://ccb1127.com
 ## ⭐️ 👉 精品线路 ：Http://sskke122.com
